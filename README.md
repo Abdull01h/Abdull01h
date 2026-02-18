@@ -1,4 +1,4 @@
-![Screenshot_20241113-215500](https://github.com/user-attachments/assets/471eebb9-9a41-40bb-b5a3-75aa6560f4af)
+![Screenshot_20241113-215500](https://g.top4top.io/p_37010zpq01.jpg)
 ![Uploading Screenshot_20241113-215500.jpg…]()
 - 👋 Hi, I’m @Abdull01h
 - 👀 I’m interested in ...
